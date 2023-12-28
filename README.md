@@ -5,3 +5,5 @@
 
 Feel free to reach out with questions via [twitter](https://twitter.com/vxnuaj) or [linkedin](https://linkedin.com/in/vxnuaj)
 
+[newsletter :)](vxnuaj.substack.com)
+
